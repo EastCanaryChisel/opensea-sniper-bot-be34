@@ -1,4 +1,4 @@
-# 
+# smart opensea sniper bot | wash-trading-execution + arbitrage-opportunities is the best opensea sniper bot, featuring wash-trading-execution and arbitrage-opportunities. Fast,
 
 
 
